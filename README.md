@@ -1,1 +1,1 @@
-# hey i finally have a readme on my profile, am i cool now
+# hey i finally made a readme for my profile. yay!
